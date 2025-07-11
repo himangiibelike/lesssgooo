@@ -1,3 +1,3 @@
 # lesssgooo
-hsuasdbabcbdcjkbkcjbc
-sjkbSYDHDbckahcfvluachfncbc:AUSScbajkhijJijcbjkcuckjbcccjurhfkjbkjkkj hhfias  hhdi  as himangi khandelwal 
+this is my first GITHUB file
+my NAME IS HIMAGI
